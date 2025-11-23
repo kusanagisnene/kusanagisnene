@@ -4,3 +4,4 @@
                                                     ・・・・・   HI THERE! my name is lucy:3 ・・・・・
                                                                      she/her pronouns!
                                                                   no1 nene fan, dni yumes 
+<img width="2048" height="176" alt="image" src="https://github.com/user-attachments/assets/3867fa4f-aacd-4f8a-adbf-fc96f56175c9" />
