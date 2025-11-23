@@ -1,4 +1,5 @@
 
+<img width="1920" height="453" alt="image" src="https://github.com/user-attachments/assets/b9835efa-c671-4d43-b13a-a1f82e772036" />
 <!--
 **kusanagisnene/kusanagisnene** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
