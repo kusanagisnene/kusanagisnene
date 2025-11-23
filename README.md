@@ -2,4 +2,5 @@
           <img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/4aa27556-08e9-45b0-a4c5-0856229020e2" />
 
                                                     ・・・・・   HI THERE! my name is lucy:3 ・・・・・
-                                                 
+                                                                     she/her pronouns!
+                                                                  no1 nene fan, dni yumes 
